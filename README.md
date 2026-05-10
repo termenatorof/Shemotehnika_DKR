@@ -1,0 +1,1 @@
+# Shemotehnika_DKR
